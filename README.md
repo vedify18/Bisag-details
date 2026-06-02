@@ -1,0 +1,1 @@
+Please approve one day of sick leave for May 30, 2026, as I was unable to attend my internship duties due to a sudden illness. I will ensure that all pending tasks for the day are caught up and completed promptly. Thank you for your understanding.
